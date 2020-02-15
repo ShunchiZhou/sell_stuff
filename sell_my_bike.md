@@ -1,3 +1,5 @@
+价格如图，可以议价，可送货上门！
+
 ![](https://raw.githubusercontent.com/ShunchiZhou/Pictures_Bed/master/img/20200214181041.png)
 ![](https://raw.githubusercontent.com/ShunchiZhou/Pictures_Bed/master/img/20200214183251.jpg)
 ![](https://raw.githubusercontent.com/ShunchiZhou/Pictures_Bed/master/img/20200214184119.jpg)
